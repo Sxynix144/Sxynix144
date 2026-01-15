@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student of the University of Mindanao
+A student of the University of Mindanao
 
 
 ## 🌐 Socials:
